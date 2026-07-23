@@ -46,5 +46,4 @@ Construir soluções que utilizem dados e Inteligência Artificial para otimizar
 
 ## 📫 Vamos nos conectar?
 
-💼 LinkedIn  
-www.linkedin.com/in/angela-punaro
+💼 **LinkedIn:** <https://www.linkedin.com/in/angela-punaro/>
